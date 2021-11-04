@@ -3,4 +3,4 @@
 Just so you know
 
 
-Make sure you dont forget to check you know
+Please dont forget to check me out!
